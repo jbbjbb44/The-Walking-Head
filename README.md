@@ -12,6 +12,6 @@ So
     with 
       off line speech recognition
       1,2,3 proof mobile devices...etc.
-Wil change the world
+Wil change the world. 
   
     
